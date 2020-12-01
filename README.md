@@ -39,4 +39,4 @@
 
 <a name="微信"></a>  <a name="公众号"></a>
 
-![img](https://img.nopassby.com/20201201/11l6_bae3c2e1634b9494fecc9d1c7d1921d3_1200x894.png)
+![img](https://img.nopassby.com/20201201/11l6_5b8dd91ec1f41ee1895d5efa54354ced_1200x894.png)
